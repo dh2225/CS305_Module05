@@ -9,4 +9,5 @@
 
 ## Contributors Go Here
 ***You're my favorite deputy!***
-  1. First Last: @github_username Vote: Movie Title
+  1. Bailey Rosato: @baileyrosato Vote: Monsters Inc.
+

@@ -10,4 +10,5 @@
 ## Contributors Go Here
 ***You're my favorite deputy!***
   1. Bailey Rosato: @baileyrosato Vote: Monsters Inc.
+  2. Sally Le: @stl46 Vote: Finding Nemo
 
